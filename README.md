@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @5ushic4t
+- 👀 I’m interested in you
+- 🌱 I’m currently learning business
+- 💞️ I’m looking to collaborate on bestie
+- 📫 How to reach me dont reach me
